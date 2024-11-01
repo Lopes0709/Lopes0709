@@ -3,3 +3,5 @@
 - Gosto de andar a cavalo,gosto de caminhão ,carro,moto
 🚀🚀🚚🚜
 ![](https://media1.tenor.com/m/hUQVGBsiDJwAAAAd/i%27m-watching-you-major-league-baseball.gif)
+- Entre em contato comigo
+- eduardo.lopes.coelho@escola.pr.gov.br
